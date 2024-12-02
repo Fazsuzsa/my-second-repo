@@ -1,3 +1,3 @@
 # Einführung 
 
-## die wird gelöscht
+## eine Zeichnung von ...
